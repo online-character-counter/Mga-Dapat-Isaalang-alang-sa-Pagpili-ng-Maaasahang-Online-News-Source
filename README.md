@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="7CysDU1ypUPw_Lf1TedupZmfRnUM3pNlmmLjxvoNOOU" />
 # Mga Dapat Isaalang-alang sa Pagpili ng Maaasahang Online News Source
 
 Sa panahon ngayon, napakadaling makakita ng balita sa social media at iba't ibang website. Gayunpaman, hindi lahat ng impormasyong lumalabas sa internet ay tama o sapat ang konteksto. Dahil dito, mahalagang matutunan kung paano pumili ng mapagkakatiwalaang pinagkukunan ng balita upang makaiwas sa maling impormasyon.
